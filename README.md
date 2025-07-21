@@ -84,8 +84,6 @@ Developed by Robert Chonge
 
 📧 robertchonge07@gmail.com
 
-📱 0782428724 (Zimbabwe)
-
 
 
 ---
